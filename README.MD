@@ -113,4 +113,3 @@ May we all remain peaceful.
 
 * **License:** CC BY-NC-ND 4.0 International © 2026. All rights reserved under this license.
 * **Terms of Use:** You are free to share and discuss this work online in its exact form with credit to **Satoshi Nakamoto — JAHAN TECH**. You are NOT allowed to change, remix, or claim this work as your own, or use it commercially, without written permission.
-*
