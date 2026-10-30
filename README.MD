@@ -81,11 +81,11 @@ We are all caretakers of this Earth. Every single one of us deserves to live wit
 When we die, we do not vanish. Nature allows nothing to vanish. This is the ultimate law: matter and energy are never destroyed; they are only transformed.
 
 We do not return as a single, isolated being; we return as many:
-* Our water returns as rain
-* Our carbon returns to the soil
-* Our nitrogen returns as a leaf
-* Our breath returns as wind over an ocean
-* Our atoms return as part of a tree, a bird, or a child
+* Our water returns as rain.
+* Our carbon returns to the soil.
+* Our nitrogen returns as a leaf.
+* Our breath returns as wind over an ocean.
+* Our atoms return as part of a tree, a bird, or a child.
 
 This is the poetry and the song of the cosmos and the universe. This is how we prove we were always One, expressed in many forms.
 
@@ -97,13 +97,13 @@ May no child be killed. May no parent be killed. May there be an end to the geno
 
 May we stop losing our protectors to ignorance. May we never again lose our soldiers, our children, and our siblings. May education, wisdom, and the right tools illuminate their path. May knowledge be their first armor.
 
-May we finally live together within a safe and nurturing environment:
-* May the farmer understand the teacher
-* May the soldier understand the artist
-* May the scientist understand the mother
-* May we understand each other's place, profession, and inherent value
+May we finally live together within a safe and nurturing environment.
+May the farmer understand the teacher.
+May the soldier understand the artist.
+May the scientist understand the mother.
+May we understand each other's place, profession, and inherent value.
 
-And let life flourish for all, not for one nation alone, but for the entire Universe.
+Let life flourish for all, not for one nation alone, but for the entire Universe.
 
 May we all remain peaceful.
 
