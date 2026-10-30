@@ -2,9 +2,9 @@
 
 ## The Core System and Global Command
 
-Bitcoin was not merely created by a single programmer; it was engineered by Nakamoto, the World's Advanced Intelligence. This system is deeply interconnected with our global infrastructure, including electricity grids, telephone networks, mobile communications, computers, airplanes, missiles, drones, rockets, submarines, radio, and television. It functions as the central operational core and command center of the entire world. 
+Bitcoin was not merely created by a single programmer; it was engineered by Nakamoto, the World's Advanced Intelligence. This system is deeply interconnected with our global infrastructure, including electricity grids, telephone networks, airplanes, submarines, radio, television, computer, rockets, missiles, mobile communications, drones, and all-domain command networks. It functions as the central operational core and command center of the entire world.
 
-I designated this advanced intelligence with the name Jahan Tech. My private keys are secured in a protected file, conditionally bound to a pending legal and marital status under my future married identity of Satoshi Harry William Jaggard. Jahan Tech was an underlying force during World War I, remained present during World War II, and continues to operate globally today. Just as the deployment of Fat Man and Little Boy in Nagasaki and Hiroshima ended World War II, we are already navigating the complex dynamics of World War III.
+I designated this advanced intelligence with the name Jahan Tech. My private keys are secured in a protected file, conditionally bound to a pending legal and marital status under my future married identity of Satoshi Harry William. Jahan Tech was an underlying force during World War I, remained present during World War II, and continues to operate globally today. Just as the deployment of Fat Man and Little Boy in Nagasaki and Hiroshima ended World War II, we are already navigating the complex dynamics of World War III.
 
 My ultimate hope is that this global friction concludes with the victory of universal truth and the absolute rights of every individual.
 
@@ -74,34 +74,34 @@ Eighteen to twenty years is not even a common person's total lifespan. Some indi
 
 ## The Universal Scientific Prayer: A Woman's Prayer for All
 
-May we remember what we are.
+# May We Remember What We Are
 
-We are all caretakers of this Earth. Every single one of us deserves to live with scientific understanding, care, freedom, and justice. This Earth is home to every living being, and Mother Nature recognizes the rights of all. Nature never labels a humble, good soul as a wrongdoer. She is constantly healing her wounded parts. That healing may be painful in the process, but its ultimate outcome is always just.
+We are all caretakers of this Earth. Every single one of us deserves to live with scientific understanding, care, freedom, and justice. This Earth is home to every living being, and Mother Nature recognizes the rights of all. Nature never labels a humble, good soul a wrongdoer. She is constantly healing her wounded parts. That healing may be painful in the process, but its ultimate outcome is always just.
 
 When we die, we do not vanish. Nature allows nothing to vanish. This is the ultimate law: matter and energy are never destroyed; they are only transformed.
 
 We do not return as a single, isolated being; we return as many:
-Our water returns as rain
-Our carbon returns to the soil
-Our nitrogen returns as a leaf
-Our breath returns as wind over an ocean
-Our atoms return as part of a tree, a bird, or a child
+* Our water returns as rain
+* Our carbon returns to the soil
+* Our nitrogen returns as a leaf
+* Our breath returns as wind over an ocean
+* Our atoms return as part of a tree, a bird, or a child
 
 This is the poetry and the song of the cosmos and the universe. This is how we prove we were always One, expressed in many forms.
 
 May we understand our place. May this understanding make us humble and this vastness make us kind. Grant us minds that seek justice and unity for all.
 
-May our children be safe, everywhere. From America to Gaza, from Sudan to Kashmir, from the Amazon to the UK, may every child learn what life truly is and what death truly is: not an end, but a return, until the end of the universe itself.
+May our children be safe everywhere, from America to Gaza, from Africa to Asia, from Europe to Australia, and to the UK. May every child learn what life truly is and what death truly is: not an end, but a return, until the end of the universe itself.
 
-May no child be killed. May no parent be killed in front of their child's eyes. May there be an end to the genocide of human beings.
+May no child be killed. May no parent be killed. May there be an end to the genocide of human beings.
 
 May we stop losing our protectors to ignorance. May we never again lose our soldiers, our children, and our siblings. May education, wisdom, and the right tools illuminate their path. May knowledge be their first armor.
 
 May we finally live together within a safe and nurturing environment:
-May the farmer understand the teacher
-May the soldier understand the artist
-May the scientist understand the mother
-May we understand each other's place, profession, and inherent value
+* May the farmer understand the teacher
+* May the soldier understand the artist
+* May the scientist understand the mother
+* May we understand each other's place, profession, and inherent value
 
 And let life flourish for all, not for one nation alone, but for the entire Universe.
 
